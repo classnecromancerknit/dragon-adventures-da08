@@ -1,4 +1,4 @@
-#  
+#  dragon adventures Script hidden is the best dragon adventures Script, featuring invisibility and anti-ban. Safe and powerful for all your needs.
 
 
 
